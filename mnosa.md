@@ -7,6 +7,6 @@
 
 **Email**: [99041645@mydavinci.nl](99041645@mydavinci.nl)
 
-**Tel**: 06-28814841
+
 
 
